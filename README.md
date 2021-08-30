@@ -1,1 +1,1 @@
-The website is under construction and will be available soon.
+The website is currently under construction, and will be available soon.
